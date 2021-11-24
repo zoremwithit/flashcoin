@@ -1,1 +1,1 @@
-flashcoin is new and revolutionary and willbbe the future of cryptocurrency
+flashcoin is new and revolutionary and will be the future of cryptocurrency
